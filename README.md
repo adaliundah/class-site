@@ -23,7 +23,6 @@
     <p>8th Grade English</p>
     <p>rpledger@lafsd.org</p>
     <p>(925) 927-3530 ext. 1202</p>
-    sdfka jhsfkaj
   
       
 
